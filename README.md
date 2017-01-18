@@ -1,7 +1,3 @@
 # onBoarding
 
-Camila Vigneaux D. =)
-YERMAIN ARAYA
-CONSTANZA HERNANDEZ
-Jesu Zuniga Conte :P
-Mauricio Sepulveda :D
+Mauricio Sepulveda
